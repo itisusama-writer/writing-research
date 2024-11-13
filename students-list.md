@@ -17,7 +17,7 @@ Bachelor of Architecture, 2020 - 2025.
 
 # Facebook
 
-Here is the revised list with only the profiles that include a specified profession (excluding students or those without any profession):
+Here is the list of the profiles that include a specified profession:
 
 ---
 
