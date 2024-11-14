@@ -1,6 +1,24 @@
 # Scenes Sequence (This sequence will grow by time):
 
-- Annual art exhibition at the National College of Arts (NCA).
-- Men putting the cursed painting and adding the sign.
-- The cursed painting getting unwanted attention.
-- Mahrosh and Saim film project and touching the painting at same time.
+- NCA Annual Art Exhibition: Students and faculty gather at NCA's art exhibition to admire various artistic works.
+- Mahrosh and Saim's Focus: Film students Mahrosh and Saim attend, drawn by rumors of a “cursed” painting.
+- The Painting’s Display: Security Officer Javed Akhtar and his team handle the painting carefully, setting up barriers and a warning sign about the curse.
+- Whispers in the Crowd: Attendees, including Archivist Rida Fatima, speak in hushed tones about the legend of the cursed painting.
+- Mahrosh and Saim's Curiosity: They are intrigued by the painting and decide it should be the focus of their next project.
+- System Setup: System Manager Syed Hussain Ali Bukhari and IT Administrator Faheem Zawar install cameras around the painting, mentioning its “haunted” nature.
+- A Warning from Ayesha: Head of Miniature Painting, Ayesha Durrani, warns Mahrosh and Saim to stay away from the painting.
+- Ignoring Warnings: The two get closer to the painting despite the caution.
+- Touching the Painting: Mahrosh and Saim instinctively reach out and touch the painting.
+- A Strange Jolt: They experience an icy jolt and notice the painting's eyes flash briefly.
+- Fear and Excitement: They laugh nervously and run from the gallery, feeling exhilarated by the experience.
+- Outside Discovery: Outside the gallery, Mahrosh notices Saim looking at his wrist, which now has a strange, dark mark.
+- Examining the Mark: Mahrosh moves closer to inspect the mark, which resembles a bruise in an unnatural shape.
+- Dismissive Jokes: Saim tries to joke, but the eerie feeling lingers between them.
+- Mahrosh’s Discomfort: As they walk away from each other, Mahrosh experiences chest tightness and difficulty breathing.
+- Testing the Distance: Realizing the effect of distance, they experiment by stepping closer and further away, confirming Mahrosh’s reaction.
+- Realization of a Connection: They realize that Mahrosh’s condition worsens when Saim moves more than two meters away.
+- Acknowledging the Curse: Mahrosh reluctantly accepts that they are “stuck” together due to a supernatural bond.
+- Saim’s Personal Conflict: Saim expresses concern about his marriage, feeling conflicted about staying close to Mahrosh.
+- Mahrosh’s Fear: She reveals her own fear, feeling like she’s being strangled when he’s too far.
+- Seeking Solutions: They discuss the possibility of the connection fading or finding someone who knows more about the painting.
+- A Pledge to Find Answers: Saim promises to look for answers without disturbing his marriage, but both remain uneasy about the future.
