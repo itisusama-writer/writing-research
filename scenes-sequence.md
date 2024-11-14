@@ -21,4 +21,21 @@
 - Saim’s Personal Conflict: Saim expresses concern about his marriage, feeling conflicted about staying close to Mahrosh.
 - Mahrosh’s Fear: She reveals her own fear, feeling like she’s being strangled when he’s too far.
 - Seeking Solutions: They discuss the possibility of the connection fading or finding someone who knows more about the painting.
-- A Pledge to Find Answers: Saim promises to look for answers without disturbing his marriage, but both remain uneasy about the future.
+- A Pledge to Find Answers: Saim promises to look for answers without disturbing his marriage, but both remain uneasy about the future. [63]
+- Mahrosh recalls the book by the cursed painting that might offer answers.
+- Ignoring the danger, she runs back to the exhibition, feeling suffocated as she crosses the boundary.
+- Saim catches up, steadying her as she gasps for breath.
+- Mahrosh tells Saim about the book, and they hurry back to the exhibition hall.
+- They spot the old book, leather-bound and inscribed with unreadable Arabic text.
+- Saim and Mahrosh realize they can’t decipher the script.
+- They approach Professor Ahmed, a linguistics expert, hoping he can translate it.
+- Professor Ahmed agrees to examine the book if they bring it to his office the next day.
+- Feeling a glimmer of hope, they thank him and plan to return in the morning.
+- Saim reluctantly calls his wife, explaining the bizarre curse binding him and Mahrosh.
+- His wife, surprisingly understanding, invites Mahrosh to stay with them for the night.
+- Relieved, Saim reassures Mahrosh that his wife will help them find a solution.
+- Mahrosh discreetly texts her father, claiming she’ll be at a friend’s house overnight.
+- They leave the college, with the curse weighing on their minds.
+- At Saim’s apartment, his wife Aisha welcomes them warmly, hugging Mahrosh.
+- Aisha reassures Mahrosh that they’ll solve the mystery together.
+- Grateful and less fearful, Mahrosh feels comforted by Aisha’s kindness and support. [109]
