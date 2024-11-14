@@ -39,3 +39,24 @@
 - At Saim’s apartment, his wife Aisha welcomes them warmly, hugging Mahrosh.
 - Aisha reassures Mahrosh that they’ll solve the mystery together.
 - Grateful and less fearful, Mahrosh feels comforted by Aisha’s kindness and support. [109]
+- Dimly lit dining room: The three of them sit in silence, the weight of the curse pressing down on them.
+- Mahrosh's voice breaks the silence: She whispers, questioning why she’s the only one having trouble breathing.
+- Aisha offers a theory: She suggests the curse might be tied to gender.
+- Saim and Mahrosh exchange confused looks: They don’t understand how gender could affect the curse.
+- Aisha elaborates: She explains that the curse may manifest differently depending on who the connection is with.
+- Mahrosh reacts in alarm: She realizes she’s suffocating while Saim is unaffected.
+- Aisha suggests a test: She proposes asking another woman to touch the painting to understand the curse’s behavior.
+- Mahrosh is uneasy: The thought of another woman touching the painting chills her.
+- Aisha reassures her: She emphasizes the importance of understanding the curse to lessen Mahrosh’s suffering.
+- Saim rejects the idea: He firmly refuses to let anyone else touch the painting and insists they find another way.
+- Tension builds: Mahrosh sighs, feeling the weight of Saim's protectiveness and the hopelessness of the situation.
+- Saim lightens the mood: He makes a joke about Mahrosh paying him back for his efforts with tea and a shoulder massage.
+- Mahrosh is surprised: She questions Saim’s suggestion.
+- Saim teases: He insists on tea and a massage, threatening to run away if she refuses.
+- Mahrosh protests: She complains about Saim’s unfairness.
+- Saim smirks: He insists everyone must make sacrifices, demanding tea and obedience.
+- Aisha laughs: She teases Saim about blackmailing Mahrosh into making tea.
+- Saim corrects her: He calls it "tea with a side of obedience."
+- Mahrosh reluctantly agrees: She rolls her eyes but heads to the kitchen, still half-smiling.
+- Mahrosh mutters under her breath: She jokes that Saim is even more cursed now.
+- Laughter fills the room: The atmosphere lightens as Mahrosh prepares the tea, softening the tension of their situation.
