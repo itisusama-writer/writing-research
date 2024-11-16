@@ -203,3 +203,103 @@ They went about their day, attending classes and completing tasks with their han
 "We are just best friends... and I am married," Saim kept repeating to anyone who asked, but the amused looks and knowing smiles continued.
 
 Despite the awkwardness and the sweatiness of their palms, they managed to store enough energy to give Mahrosh some relief from the curse. As the day went on, they found themselves laughing at the absurdity of their situation, their bond growing stronger with each shared moment.
+
+---
+
+As evening approached, the weight of their circumstances had lessened slightly, replaced by a strange camaraderie. Saim and Mahrosh sat under the sprawling banyan tree on campus, hands still tied with her scarf. The cool breeze offered a small reprieve from the day's suffocating tension.
+
+"Never thought we'd end up like this," Saim mused, half-laughing as he looked at their interlocked hands. "Bound together, literally."
+
+Mahrosh smirked, though her gaze wandered to the horizon, thoughtful. "At least we're figuring it out, right? One awkward step at a time."
+
+Saim nodded. "Yeah, but... what about tomorrow? Or the day after? We can't keep doing this forever." His voice dropped slightly. "I have a wife, Mahrosh. This... whatever it is... can't last."
+
+Mahrosh's chest tightened at his words. Not because of the curse, but because of the unspoken truth hanging between them: they were running out of options.
+
+"You think Professor Ahmed will find a permanent solution?" she asked, her voice tinged with hope.
+
+"He has to," Saim replied. "Until then, we'll manage. Together."
+
+The boundaries they had discovered earlier still held, but at least for now, she could function independently.
+
+When she finally reached home, the warm glow of the porch light felt almost comforting. Steeling herself, she stepped inside, only to find a tense, unsettling silence. Her Amma and Abba sat in the living room, avoiding her gaze, their expressions tight with unspoken emotion.
+
+Mahrosh hesitated, the door clicking shut behind her. "Asalamualaikum," she greeted softly, but neither of them responded.
+
+Puzzled, she made her way to the kitchen, where her elder sister, Rabia, was chopping vegetables with an air of forced nonchalance.
+
+"Rabia, what's going on?" Mahrosh asked, her voice low. "Did I do something wrong?"
+
+Rabia glanced up, her expression a mix of sympathy and exasperation. She lowered her voice. "Ali told them," she said, setting the knife down.
+
+"Ali? Told them what?" Mahrosh's heart sank.
+
+"That you were with a boy," Rabia replied bluntly, her tone carrying both accusation and concern. "He saw you and Saim together on campus."
+
+Mahrosh’s breath caught in her throat. “But Saim is just my best friend!” she protested, her voice rising slightly. “And he’s married!”
+
+Rabia shrugged. “You know how Amma and Abba think. They don’t care if he’s married or not. They’re upset because it looks bad.”
+
+Fighting back tears of frustration, Mahrosh stormed into the living room. "Amma, Abba, I didn’t do anything wrong," she said, her voice trembling. "Saim is my friend, and that’s all."
+
+Her parents exchanged a glance, her father finally speaking in a low, measured tone. "We’re not saying you did anything wrong, Mahrosh. But you need to be careful about appearances. People talk, and it’s our family’s reputation at stake."
+
+Mahrosh felt anger rising in her chest, but she bit it back. "I’m not going to stop being friends with him," she said firmly. "He’s helped me through so much, and I won’t let your assumptions ruin that."
+
+Her mother sighed, her expression softening slightly. "Just... be careful," she murmured. "That’s all we ask."
+
+The tension lingered for the next two days, but things seemed to return to a fragile normalcy. Mahrosh avoided Ali’s smug looks and focused on her studies, doing her best to ignore the lingering disapproval in her parents’ eyes.
+
+Then, on the second morning, as she sat in class, an all-too-familiar tightness began to creep over her chest. At first, she tried to ignore it, assuming it was just nerves or the stress of the past few days. But as the minutes passed, her breathing grew more labored, and she clutched at her desk for support.
+
+“I… I can’t…” she gasped, her vision beginning to blur.
+
+Nur, the friend sitting beside her, noticed immediately. "Mahrosh, what’s wrong?" she asked, her voice panicked.
+
+“I need… Saim,” Mahrosh managed to choke out, barely audible.
+
+Nur didn’t waste a second. She darted out of the classroom, searching the nearby halls. Moments later, Saim appeared in the doorway, his face a mask of worry. He rushed to Mahrosh’s side, kneeling beside her.
+
+“Mahrosh! I’m here. Look at me,” he said, gripping her hand tightly. As soon as their hands touched, the suffocating feeling eased, her breaths coming more freely.
+
+The classroom fell silent, all eyes on them. Saim ignored the stares, his focus solely on Mahrosh. “You okay now?” he asked softly, his tone gentle.
+
+She nodded weakly, tears brimming in her eyes. “I… I don’t know what happened.”
+
+Saim helped her to her feet, his arm steadying her. "Let’s get out of here," he said, guiding her toward the hallway.
+
+The whispers followed them as they left, but neither of them cared. For now, the only thing that mattered was figuring out why this was happening—and how to stop it before it tore their lives apart.
+
+Sitting on the edge of the university’s grassy ground, Mahrosh and Saim leaned against a bench, their expressions filled with both exhaustion and contemplation. The campus buzzed with life around them, but their conversation felt removed, as if they existed in a separate world entirely.
+
+"One hour is not a day," Mahrosh said, frustration evident in her voice. She twisted her scarf between her fingers, her brows furrowed in thought. "I was okay for less than 24 hours this time."
+
+Saim nodded, his face serious. "We need to figure out what’s going on with this curse. It’s like… it’s inconsistent."
+
+Mahrosh paused, her mind racing back to their earlier attempts to store energy. "Wait," she said suddenly, sitting upright. "Remember the day we held hands for four hours? I didn’t feel anything for two whole days after that. That’s double the time!"
+
+Saim’s eyebrows shot up as he considered her words. "Four hours equals two days? That means the longer we… um…" He trailed off, glancing awkwardly at their hands.
+
+"Yeah," Mahrosh finished, meeting his gaze. "The longer we stay connected, the more energy gets stored. But it’s not practical to do that here."
+
+"Exactly," Saim said, his tone firm. "We can’t just sit around holding hands at the university. People already think something’s going on between us, and I can’t risk making it worse. My wife trusts me, but this would… it’d look bad."
+
+Mahrosh sighed, nodding in agreement. "You’re right. We need a place where no one will see us. Somewhere outdoors, where we won’t be judged or questioned."
+
+They fell into silence, their minds working in sync. After a moment, Saim spoke up, a hint of hesitation in his voice. "There’s a park outside near Anarkali. It’s usually quiet, especially during the weekdays. We could go there and… you know, spend more time trying this energy thing."
+
+Mahrosh tilted her head, considering the idea. "That might work," she said slowly. "But what if someone still recognizes us? People talk, Saim. They’ll make it worse than it already is."
+
+"Then we go farther," Saim said decisively. "Somewhere no one knows us. We’ll drive out of Lahore if we have to."
+
+Mahrosh blinked, surprised at his determination. "You’d do that?"
+
+Saim gave a half-smile, shrugging. "I don’t think we have a choice. If we don’t figure this out, it’s going to get worse for both of us. And…" He hesitated, looking away. "I don’t want to see you like this, Mahrosh. Struggling to breathe, collapsing in class—it’s not right."
+
+Her chest tightened, not from suffocation this time, but from the sincerity in his voice. She looked down at their hands, fingers brushing slightly. "Okay," she said softly. "Let’s do it. Tomorrow morning, we’ll skip class and go somewhere far. Somewhere safe."
+
+Saim nodded, a faint smile playing on his lips. "Good. Pack some snacks or something. If we’re stuck holding hands for hours, at least we can eat."
+
+Mahrosh chuckled despite herself, the heaviness of their situation momentarily lifted. For a brief moment, it almost felt like old times—just two friends joking around, unburdened by curses or whispered judgments.
+
+As the sun dipped lower in the sky, the plan solidified in their minds. They would find a way to break free, even if it meant holding on—quite literally—to each other for as long as it took.
