@@ -3,6 +3,20 @@
 - FACULTY OF FILM & TELEVISION
 - [YouTube](https://www.youtube.com/@mahroshumrani2003)
 - [Instagram](https://www.instagram.com/mahrosh_umrani/)
+- Id: 2024-NCA-FTV-451
+- Father Name: JAVED HUSSAIN UMRANI
+- Roll #: 330056
+- CNIC: 41303-5957432-0
+- SIM: Zong
+- UG-Film & Television-Foundation 1st Semester ( Spring 2024) SGPA: 3.52
+
+# To Be Used 
+- 330056 
+- 42101-1067768-8 
+- MASOOMA ZEHRA 
+- MANZAR ABBAS 
+- ARCHITECTURE
+
 
 # Linkedin
 Here are the profiles of individuals who mention the National College of Arts (NCA) in their education history on LinkedIn:
