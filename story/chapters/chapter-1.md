@@ -1,14 +1,14 @@
 # Introduction
 
-It was almost the mid of the year when Ayesha Mariam Durrani, Head of Miniature Painting and Printmaking, Aqeel Ahmed Solangi, Head of Painting and Sculpture, and Esmaeil Arbab Shahestan, Incharge of the Traditional Art & Craft Programme, went out of the way and decided to organize an annual art exhibition at the only best-known art university in Lahore, National College of Arts. This once-in-a-year exhibition is especially for students and faculty members of NCA. 
+Midyear, Ayesha Mariam Durrani, Head of Miniature Painting and Printmaking, Aqeel Ahmed Solangi, Head of Painting and Sculpture, and Esmaeil Arbab Shahestan, Incharge of the Traditional Art & Craft Programme, collaborated to organize the annual art exhibition at Lahore's prestigious National College of Arts. This once-in-a-year exhibition is especially for students and faculty members of NCA. 
 
-The main exhibition hall of NCA started filling with various paintings and sculptures from all around the world, but one caught everyone’s eye. At the heart of this gallery, men in black gloves, led by Chief Security Officer Javed Akhtar, carefully positioned a vintage painting of an elderly woman with deep, penetrating eyes on the wall at the very center of exhibition hall. A painting that captured everyone's attention. It was of an old woman with deep, penetrating eyes that seemed to look right at you.
+The main exhibition hall of NCA started filling with various paintings and sculptures from all around the world, but one caught everyone's eye. At the gallery's heart, men in black gloves, led by Chief Security Officer Javed Akhtar, carefully mounted a vintage painting: an elderly woman with piercing eyes. Positioned at the center of the exhibition hall, her gaze seemed to follow every viewer, commanding attention.
     
 The canvas looked aged, adding to the painting's mysterious feel. Every wrinkle on the woman's face was carefully painted, each one telling a different story. The shadows on her cheeks made her look almost ghostly, and her tightly pressed lips hinted at secrets she was keeping.
     
 The background was dark and simple, making the woman stand out even more. Her clothes were plain and worn, suggesting a hard life full of experiences. The painting's realistic details made it both fascinating and a little unsettling, drawing everyone closer to her sad and wise gaze.
 
-This somber ritual caught everyone's attention as a thick rope barrier was set up around the piece. A simple, unsettling sign warned: Do Not Touch the Painting and Do Not Cross the Boundaries... CURSED. The crowd began to murmur. Some people whispered in fear, their faces pale and their eyes wide. 
+The atmosphere turned tense as a thick rope barrier was placed around the painting. A stark sign read: Do Not Touch the Painting. Do Not Cross the Boundaries. CURSED. Uneasy murmurs rippled through the crowd, some pale-faced and wide-eyed with apprehension. 
 
 "Cursed? What does that mean?" one person asked nervously. Others laughed it off, dismissing the sign as a dramatic joke. 
 
@@ -46,9 +46,9 @@ As he worked, a curious onlooker asked, "Do you really think there's something t
 
 Syed Hussain Ali Bukhari glanced at them, his expression grim. "We'll find out soon enough," he replied, turning back to his task with a determined look.
 
-"Strange, isn't it?" Syed Hussain Ali Bukhari muttered to Faheem Zawar, the IT Administrator.
+"Odd, isn't it?" murmured Syed Hussain Ali Bukhari to Faheem Zawar, the IT Administrator.
 
-Faheem replied with a nervous laugh, "More than strange. Haunted, they say."
+"Haunted, they say," Faheem replied with a nervous chuckle.
 
 Syed adjusted another camera, his face serious. "Did you hear about the last place this painting was displayed?" he asked quietly.
 
@@ -74,7 +74,7 @@ Ayesha's eyes revealed she knew more than she was saying, but she chose her word
 
 Her warning only fueled Mahrosh and Saim's interest even more, but now they were even more aware of the risks involved.
 
-Mahrosh and Saim stood close to the painting, their eyes taking in every detail. As Mahrosh studied the deep, penetrating eyes of the elderly woman in the painting, she suddenly felt an unusual chill run down her spine. It was as if the room temperature had dropped, and she instinctively wrapped her arms around herself to keep warm.
+Standing close to the painting, Mahrosh and Saim absorbed its every detail. As Mahrosh locked eyes with the elderly woman on the canvas, an icy shiver coursed through her, as though the temperature had plummeted. She crossed her arms tightly, an instinctive defense against the inexplicable chill.
 
 Meanwhile, Saim noticed something odd. The lighting near the painting flickered for just a moment, casting strange shadows that seemed to dance around the canvas. He blinked and looked again, but everything seemed normal now.
 
