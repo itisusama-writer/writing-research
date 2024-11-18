@@ -14,7 +14,11 @@ This somber ritual caught everyone's attention as a thick rope barrier was set u
 
 "They can't be serious," someone chuckled, shaking their head. But despite their reactions, everyone was drawn to the painting, their curiosity piqued by the eerie warning.
 
-There were so many rumors about this painting, and many people had felt something weird connected to it. [**Expand here with a brief backstory or a rumor about the painting—perhaps a past incident involving someone who ignored the warning. What happened to them?**]
+There were so many rumors about this painting, and many people had felt something weird connected to it. 
+
+"This painting has traveled across continents," Ayesha Mariam Durrani murmured, her voice barely audible. 
+
+"They say its origins are unknown, but every place it has been displayed, someone... changes. People have reported strange phenomena, shadows moving, whispers in the night. In one gallery, a young artist who studied it obsessively disappeared, leaving behind nothing but a cryptic note: 'She watches'."
 
 The crowd murmured as Prof. Dr. Murtaza Jafri, the Vice Chancellor, spoke in low tones to Bushra Saeed Khan, the Acting Registrar. The eerie atmosphere only intensified when Rida Fatima, the Archivist, whispered to a nearby student, "Legend has it, anyone who dares touch it faces... consequences."
 
