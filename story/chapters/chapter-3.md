@@ -1,4 +1,4 @@
-# Boundaries Tested
+# Bound by the Curse
 
 Mahrosh and Saim decided they needed to understand what was happening. They found a quiet spot within the university to test the curse again.
 
