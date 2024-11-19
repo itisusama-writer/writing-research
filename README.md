@@ -1,4 +1,7 @@
 # writing-research
+
+[Read The Book Here](https://www.booksie.com/739870-trapped-in-the-frame)
+
 # This repository provides insights into the research and creative process of a writer, aimed at illustrating various techniques used in storytelling and content creation.
 
 disclaimer: |

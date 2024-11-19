@@ -1,3 +1,5 @@
+# The Touch
+
 Ignoring the cautionary looks from others, Mahrosh and Saim moved closer to the painting. The painting was larger than life, its colors muted but striking. The old woman in the frame seemed to stare directly at them, her eyes glinting as if hiding a secret. A small plaque beneath it read: 'Her Gaze Endures.'
 
 The crowd gave the painting a wide berth, as though afraid to get too close. Whispers drifted through the air, fragments of superstitious murmurs about curses and bad luck.
