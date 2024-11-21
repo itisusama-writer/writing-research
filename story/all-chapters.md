@@ -221,3 +221,171 @@ As he hung up, he looked at Mahrosh, who gave him a weak smile. "Your wife... sh
 Mahrosh texted her father, "I am staying at my friends home... I will be back home tomorrow." She lied, but it seems to be the only way for her. She can't just say, "I am spending a night with a boy." 
 
 They left the college together, the looming presence of the cursed painting still weighing on their minds. Mahrosh kept close as they walked, still tense from their shared ordeal. By the time they arrived at Saim's apartment, the fatigue of the night was settling over them, a strange heaviness as they prepared to face the unknown.
+
+# The Time Together
+
+The two of them entered the house. Each of them with a tension on their face for what could happen, or what could be the reaction of Aisha. But the things turned different. 
+
+Saim's wife, Aisha, greeted them at the door with a warm smile, pulling Mahrosh into a gentle hug. "You're safe here," she reassured her. "Whatever's going on, we'll figure it out together."
+
+Mahrosh felt a surge of gratitude, her fear momentarily easing. She wasn't alone. Together, they would face whatever darkness lay ahead, and somehow, they would find a way to break free of the curse.
+
+---
+
+In the dimly lit dining room, the three of them sat in silence, the weight of the curse pressing down on them. Mahrosh absently traced a finger around the rim of her glass, her mind racing. Saim's wife, Aisha, studied Mahrosh with a gentle, thoughtful gaze, doing her best to appear unruffled by the strange predicament they had found themselves in.
+
+Finally, Mahrosh broke the silence, her voice barely above a whisper. “Why am I the only one having trouble breathing?”
+
+Aisha leaned back, glancing thoughtfully between Mahrosh and Saim. “It’s strange, definitely,” she agreed, “but maybe there’s a reason for it… perhaps it’s something to do with gender?”
+
+Saim raised an eyebrow, exchanging a puzzled look with Mahrosh. “Gender?” he repeated, uncertain. “How could that make a difference?”
+
+Aisha hesitated, organizing her thoughts. “Think about it,” she explained slowly, “if the curse binds based on a need for connection, maybe it manifests differently depending on who the connection is with. If Mahrosh were tethered to another woman, maybe they’d both feel the same symptoms, like the suffocation. But with you—”
+
+“You’re saying that the curse affects us differently because he’s a man?” Mahrosh finished, her eyes widening. “So that’s why I’m suffocating, but Saim’s not.”
+
+“Possibly,” Aisha nodded. “I’ve read about curses in folklore that affect people differently, depending on things like family ties, gender, or even specific fears or vulnerabilities.” She paused, glancing at Saim. “And it doesn’t necessarily mean the same effects for each person.”
+
+Saim shook his head, frowning as he tried to piece it together. “So the curse is trying to keep us close—specifically close enough for Mahrosh not to feel that… suffocation. And since we’re not bound in the same way, she’s the one suffering if we’re too far apart.”
+
+A silence fell over the room as the implications of Aisha’s theory settled in. Mahrosh’s hands began to shake slightly, and she clenched them tightly together to steady herself. “So, what do we do?” she whispered, glancing up at Saim and Aisha. “If this curse is tied to gender, how do we break it?”
+
+Aisha considered this, her face calm but eyes sharp with determination. “There might be a way. If it is gender-based, we need to test whether the curse behaves the same way with someone else—a woman who hasn’t yet touched the painting.” She looked at Mahrosh with a hint of hesitation. “Someone you trust, who could potentially take Saim’s place, even just to understand the curse’s boundaries.”
+
+Mahrosh’s eyes widened in alarm. “You’re suggesting that I… ask another woman to touch it?” The very thought sent a chill down her spine.
+
+“I know it sounds risky,” Aisha said softly, “but we need answers. And if it means we can lessen your suffering… it might be worth trying.”
+
+The room fell into tense silence as Mahrosh, Saim, and Aisha weighed the decision ahead. The path forward was uncertain, and whatever lay beyond it would demand even more courage and trust than they had shown so far.
+
+Saim’s face darkened as he absorbed Aisha’s suggestion, his jaw clenching. “Absolutely not,” he said firmly, his tone leaving no room for debate. “First, the painting won’t even be there anymore. It was a temporary display for the exhibition, so there’s no chance of anyone else touching it. And second,” he added, his eyes narrowing as he looked from Aisha to Mahrosh, “I won’t allow anyone—Mahrosh, you, or anyone else—to go near that cursed thing. It’s dangerous. We’ll find another way to break this curse.”
+
+Mahrosh sighed, feeling the tension in the room grow thick enough to cut through. She appreciated Saim’s protectiveness, but there was a stubborn streak in his voice that made the situation feel all the more hopeless. Aisha pressed her lips together, giving her husband a sidelong look but not pushing the issue further.
+
+Sensing the growing heaviness of the conversation, Saim leaned back in his chair, suddenly flashing a mischievous grin. “Alright, Mahrosh,” he said, crossing his arms with an exaggeratedly relaxed air, “since I’ve risked my life—on multiple occasions now—trying to keep you alive, I think it’s time you paid me back.”
+
+Mahrosh’s eyebrows shot up, her anxiety momentarily pushed aside by surprise. “What?”
+
+“Tea,” he said, with a smug smile. “A nice, steaming cup. Oh, and don’t forget to press my shoulders. My muscles are all sore from chasing after you.” He raised an eyebrow, clearly trying to lighten the mood. “If you disobey, just saying, I might decide to test the curse myself… by running right out the door.”
+
+Mahrosh gaped at him, caught between exasperation and a reluctant smile. “Saim, that’s not fair!”
+
+“Hey, we all have to make sacrifices,” he replied, smirking. “Now, tea—and maybe a little shoulder massage, if you please.” He leaned forward, pretending to stretch his legs toward the door. “Or I might just make a break for it.”
+
+Aisha let out a surprised laugh, shaking her head. “Saim, really?” she teased, clearly amused. “You’re blackmailing her into making tea?”
+
+“Not just tea,” he corrected, grinning wider. “Tea with a side of obedience.” He leaned back, winking at Mahrosh. “Now get to it before I change my mind.”
+
+Mahrosh rolled her eyes, feigning annoyance but feeling a smile tugging at her lips as she stood up, moving toward the kitchen. “Fine, but don’t think this makes you any less cursed,” she muttered. “You’re more cursed than ever.”
+
+As she filled the kettle, the laughter that followed her was warm and genuine, softening the edges of the grim reality they all faced.
+
+# The Solution
+
+The next morning, the gravity of their situation weighed heavily as Saim and Mahrosh walked towards Professor Ahmed's office. The campus was bustling with the usual activity, but for them, it felt like they were walking through a fog.
+
+Arriving at the professor's office, Saim knocked gently on the door. "Come in," came the familiar voice, and they stepped inside, the old book clutched tightly in Saim's hand.
+
+Professor Ahmed looked up from his desk, his sharp eyes focused on the duo. "You two seem to have had quite a night," he remarked, motioning for them to sit. "Let's see this book you mentioned."
+
+Saim handed over the book, and the professor began to leaf through it with practiced ease. As he scanned the ancient text, his brow furrowed in concentration. After a long moment, he looked up, his expression serious.
+
+"This is not a simple curse," he began. "It is deeply rooted in ancient rituals and requires more than just a quick fix. However, there is mention of a way to temporarily alleviate the symptoms." He paused, making sure they were following. "To store energy."
+
+Mahrosh and Saim exchanged puzzled looks. "Store energy?" Mahrosh repeated.
+
+Professor Ahmed nodded. "The book suggests that physical touch can store energy between the cursed individuals. This stored energy can give you temporary relief from the curse's effects."
+
+"How does it work?" Saim asked, his curiosity piqued.
+
+"According to the text, engaging in some form of physical contact—holding hands, hugging, or even kissing—for an extended period can store enough energy to keep the curse at bay for a limited time. If you maintain physical contact for about an hour, Mahrosh will have approximately 24 hours of freedom from the curse's effects."
+
+Mahrosh blushed slightly at the thought but nodded. "Alright, if that's what it takes."
+
+Outside the office, Mahrosh and Saim exchanged awkward glances. The idea of physical touch to store energy felt strange and uncomfortable.
+
+"I am not kissing you," Mahrosh declared firmly.
+
+"Neither do I," Saim replied, equally resolute.
+
+With a sigh, Mahrosh extended her left hand and interlocked her fingers with Saim's right hand. "Eww," Saim muttered, but he didn't pull away. Mahrosh used her scarf to tie their hands together, ensuring they wouldn't accidentally separate.
+
+They went about their day, attending classes and completing tasks with their hands bound together. The sight of them holding hands drew curious stares and whispers from their classmates. Many assumed they were a couple deeply in love.
+
+"We are just best friends... and I am married," Saim kept repeating to anyone who asked, but the amused looks and knowing smiles continued.
+
+Despite the awkwardness and the sweatiness of their palms, they managed to store enough energy to give Mahrosh some relief from the curse. As the day went on, they found themselves laughing at the absurdity of their situation, their bond growing stronger with each shared moment.
+
+---
+
+As evening approached, the weight of their circumstances had lessened slightly, replaced by a strange camaraderie. Saim and Mahrosh sat under the sprawling banyan tree on campus, hands still tied with her scarf. The cool breeze offered a small reprieve from the day's suffocating tension.
+
+"Never thought we'd end up like this," Saim mused, half-laughing as he looked at their interlocked hands. "Bound together, literally."
+
+Mahrosh smirked, though her gaze wandered to the horizon, thoughtful. "At least we're figuring it out, right? One awkward step at a time."
+
+Saim nodded. "Yeah, but... what about tomorrow? Or the day after? We can't keep doing this forever." His voice dropped slightly. "I have a wife, Mahrosh. This... whatever it is... can't last."
+
+Mahrosh's chest tightened at his words. Not because of the curse, but because of the unspoken truth hanging between them: they were running out of options.
+
+"You think Professor Ahmed will find a permanent solution?" she asked, her voice tinged with hope.
+
+"He has to," Saim replied. "Until then, we'll manage. Together."
+
+The boundaries they had discovered earlier still held, but at least for now, she could function independently.
+
+# Back Home  
+
+Mahrosh finally reached home, the warm glow of the porch light offering a false sense of comfort. Steeling herself, she stepped inside, only to find the living room steeped in an unsettling silence. Her Amma and Abba sat on the sofa, their faces taut with unspoken emotions. The muted hum of the ceiling fan was the only sound, and it grated against Mahrosh's nerves.  
+
+She hesitated, her fingers gripping the edge of the door as it clicked shut behind her. "Asalamualaikum," she greeted softly, her voice breaking the stillness.  
+
+Her Amma replied curtly, not meeting her eyes. "Walaikum Salam." Her tone carried the weight of disappointment.  
+
+Mahrosh's heart sank, and she turned toward the kitchen, hoping for some clarity. There, she found her elder sister Rabia, chopping vegetables with deliberate force, her movements sharp and purposeful.  
+
+"Rabia," Mahrosh asked cautiously, "what's going on? Did something happen?"  
+
+Rabia glanced up, her expression a mix of concern and irritation. She hesitated before setting the knife down. "Ali told them," she said flatly.  
+
+Mahrosh frowned, confused. "Ali? Told them what?"  
+
+Rabia sighed, folding her arms. "That you were with a boy. He saw you and Saim together on campus."  
+
+Mahrosh froze, her breath catching. "But Saim is just my best friend!" she protested, her voice rising in disbelief. "And he's married!"  
+
+Rabia shrugged, her tone edged with resignation. "You know how Amma and Abba think. They don't care if he's married or not. They only care how it looks to other people. And now they're upset because it looks bad."  
+
+Fuming, Mahrosh stormed into the living room, her anger simmering just below the surface. "Amma, Abba, I didn't do anything wrong," she said, her voice trembling with emotion. "Saim is my friend, and that's all. You can't assume the worst just because someone saw us together."  
+
+Her father, who had been silent, finally looked up, his tone low and measured. "We're not saying you did anything wrong, Mahrosh. But you need to understand how people talk. It's about our family's reputation. We can't afford to give anyone reason to gossip."  
+
+Mahrosh bit her lip, trying to contain the anger threatening to spill over. "I won't stop being friends with him," she said firmly. "He's helped me through so much, and I'm not going to let baseless assumptions ruin that."  
+
+Her mother sighed, her expression softening slightly. "Just... be careful," she murmured. "That's all we ask."  
+
+Before Mahrosh could respond, the sound of a chair scraping against the floor caught her attention. Ali, her cousin, stepped out from the adjacent room. His smug expression made her blood boil.  
+
+"You should be thankful I told them," Ali said, his voice laced with self-righteousness. "I'm just looking out for you. Someone needed to stop you from making a fool of yourself."  
+
+Mahrosh turned on him, her eyes blazing. "Who the hell are you to decide what I do with my life?" she snapped, her voice sharp enough to cut through the tension.  
+
+Ali flinched but quickly recovered, crossing his arms. "I'm family, Mahrosh. It's my responsibility to make sure you don't ruin our name..."  
+
+"Ruin our name?" Mahrosh interrupted, her voice trembling with fury. "By what? Having a friend? You don't get to control me or dictate my choices. You're not some moral authority, Ali, so stay out of my life."  
+
+Ali's face darkened, but he stayed silent, sensing that any retort would only escalate the situation.  
+
+"Next time," Mahrosh continued, her voice icy yet trembling, "keep your judgments and gossip to yourself. You've done enough damage already."  
+
+Her words hung in the air like shards of glass, sharp and cutting. Ali stiffened, his mouth opening as if to retort, but the fire in her eyes silenced him. The room seemed to shrink under the weight of her anger, every breath taut with tension.  
+
+Without waiting for a reply, Mahrosh turned on her heel, her fists clenched tightly at her sides. Her footsteps pounded up the stairs, each step echoing her frustration and hurt. She stormed into her room, slamming the door behind her with a force that rattled the walls.  
+
+Once inside, her defiance crumbled. The air felt thick, and her chest heaved as tears began to fall, hot and unrelenting. She staggered to her bed, collapsing onto it as the sobs broke free. The emotions she had fought to keep at bay now overwhelmed her, a tempest of anger, humiliation, and exhaustion.  
+
+She buried her face in her pillow, muffling the sounds of her cries. Her shoulders shook as she let the tears soak through the fabric, the reality of the confrontation cutting deeper than she'd expected. The weight of her family's expectations pressed down on her like an anchor, their voices still echoing in her mind.  
+
+But beneath the heartbreak, a flicker of defiance burned, stubborn and unyielding. Through the tears, Mahrosh whispered to herself, her voice raw but determined, "They don't get to control me. Not Ali. Not anyone."  
+
+The room felt cold and still, but that single spark within her refused to be extinguished. Even as she cried, Mahrosh knew she wouldn't let their judgment define her. She would face this, just as she always had... with strength forged from the fire of her struggles.
