@@ -40,16 +40,46 @@ They fell into silence, their minds working in sync. After a moment, Saim spoke 
 
 Mahrosh tilted her head, considering the idea. "That might work," she said slowly. "But what if someone still recognizes us? People talk, Saim. They'll make it worse than it already is."
 
-"Then we go farther," Saim said decisively. "Somewhere no one knows us. We'll drive out of Lahore if we have to."
+Saim's gaze turned serious as he studied Mahrosh's face. Her unease was clear, and it mirrored his own. This curse wasn't just tying them together; it was slowly dismantling their lives, piece by piece.
 
-Mahrosh blinked, surprised at his determination. "You'd do that?"
+"You're right," Saim said finally, his voice steady. "We can't risk being seen there. But this isn't just about appearances anymore. Your health is on the line. If we don't figure this out, it'll only get worse."
 
-Saim gave a half-smile, shrugging. "I don't think we have a choice. If we don't figure this out, it's going to get worse for both of us. And..." He hesitated, looking away. "I don't want to see you like this, Mahrosh. Struggling to breathe, collapsing in class... it's not right."
+Mahrosh leaned back, her fingers nervously twisting the edge of her scarf. "Then what do we do? We can't just keep hiding and hoping no one notices."
 
-Her chest tightened, not from suffocation this time, but from the sincerity in his voice. She looked down at their hands, fingers brushing slightly. "Okay," she said softly. "Let's do it. Tomorrow morning, we'll skip class and go somewhere far. Somewhere safe."
+A moment of silence passed between them, the weight of the curse pressing down heavily. Saim's mind raced, searching for an answer. Then it hit him.
 
-Saim nodded, a faint smile playing on his lips. "Good. Pack some snacks or something. If we're stuck holding hands for hours, at least we can eat."
+"There's one more option," he said carefully.
 
-Mahrosh chuckled despite herself, the heaviness of their situation momentarily lifted. For a brief moment, it almost felt like old times... just two friends joking around, unburdened by curses or whispered judgments.
+Mahrosh looked up, her brow furrowed. "What is it?"
 
-As the sun dipped lower in the sky, the plan solidified in their minds. They would find a way to break free, even if it meant holding on... quite literally... to each other for as long as it took.
+Saim hesitated, glancing around to ensure no one was within earshot. "The rooftop of my apartment building," he said carefully. "It's private, quiet, and no one goes up there. We could figure this out without anyone watching."
+
+Mahrosh frowned, her unease growing. "But what about Aisha? She's been understanding so far, but if someone like Ali gets wind of this…" Her voice trailed off, the potential fallout hanging heavy between them.
+
+Saim ran a hand through his hair, frustration etched on his face. "I know it's risky, but what other option do we have? The park isn't safe, and your house…"
+
+"Is out of the question," Mahrosh finished, sighing. "My parents are already on edge because of Ali's interference."
+
+Saim leaned forward, his voice steady but firm. "I'll talk to Aisha. I'll explain everything. She trusts me, Mahrosh, and I'll make sure she knows this is about survival, not... anything else."
+
+Mahrosh nodded slowly, though her doubt lingered. "And what if Ali finds out? You know he'll twist this into something ugly."
+
+Saim hesitated, glancing around cautiously. "We'll have to be smart about this," he said. "What about the rooftop of my apartment building? It's private, quiet, and we can figure this out without anyone watching."
+
+Mahrosh shook her head immediately. "I can't risk being there too late, Saim. If Ali finds out, he'll blow it out of proportion, and my parents will never believe it's innocent. I can't keep sneaking around like this."
+
+Saim sighed, running a hand over his face. "Okay, you're right. Then we'll go during the day, but only for short periods—when people are least likely to notice. I'll let Aisha know in advance, so there's no misunderstanding."
+
+Mahrosh's eyes widened. "You'd tell Aisha?"
+
+"Yes," Saim said firmly. "She trusts me, and I don't want this to become a source of tension. If she knows what's happening, we won't have to hide anything."
+
+Mahrosh's shoulders slumped as she considered the plan. "And what about Ali? He's practically looking for a reason to cause trouble."
+
+"We'll make it look normal," Saim replied. "If anyone asks, you're helping me with a project. No late-night meetups, no suspicious behavior. We'll keep this as low-profile as possible."
+
+Mahrosh exhaled slowly, her mind racing through the possibilities. The rooftop was still risky, but with Aisha aware and precautions in place, it might just work.
+
+"Alright," she said, her voice tinged with hesitation. "But if Ali or anyone else so much as raises a question, we stop immediately."
+
+"Deal," Saim said, his tone softening. "We'll be careful, Mahrosh. I promise."
