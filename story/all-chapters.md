@@ -475,3 +475,274 @@ Mahrosh exhaled slowly, her mind racing through the possibilities. The rooftop w
 "Alright," she said, her voice tinged with hesitation. "But if Ali or anyone else so much as raises a question, we stop immediately."
 
 "Deal," Saim said, his tone softening. "We'll be careful, Mahrosh. I promise."
+
+# A Terrifying Discovery
+
+It was next afternoon, Mahrosh and Saim sat huddled over a laptop in the quietest corner of the university library, their faces illuminated by the pale glow of the screen. They had stumbled upon a website https://itisusama-writer.github.io/fake-articles/. A local website, claiming to host rare academic papers and personal accounts about paranormal phenomena. With trembling fingers, Mahrosh clicked on an article titled "The Haunted Portrait: Paris Exhibition's Mysterious Attraction." As they read, the weight of the curse grew heavier with every line. The painting, it turned out, had a dark history of ensnaring individuals.
+
+However, it was a one of the article, "The Roll Number Curse - Masooma Zehra's Haunting Experience." that left them breathless. The story detailed the experience of an NCA student named Masooma Zehra, who had endured a similar curse with her sister, tethered together by a bond they couldn't escape. As Mahrosh read further, a chilling realization dawned: Masooma's roll number matched hers exactly, suggesting that it might be the continuing of a cycle connected to the painting.
+
+Saim leaned back, running a hand through his hair. "This is bigger than us," he muttered. "If Masooma went through the same thing, we need to find her."
+
+"And not just her," Mahrosh added, her voice shaking. "The article mentions a demonologist...Usama, who specializes in curses like this. If anyone can help us figure out what's happening, it's him."
+
+Their search had given them two names, two potential lifelines. Now, all they had to do was find them.
+
+Saim and Mahrosh wasted no time. They approached the administration office at NCA, carefully crafting a story about needing to contact Masooma Zehra for a research project. After some initial hesitation, the staff agreed to check their records.
+
+"You're in luck," the administrator said, handing them a slip of paper. "We still have her contact information from her graduation year."
+
+Mahrosh's heart raced as she copied down the number. "Thank you," she said quickly, clutching the paper tightly as they left the office.
+
+Outside, they found a quiet bench under the shade of a tree. Mahrosh stared at the number for a moment before dialing it, her fingers trembling slightly. She pressed the phone to her ear, Saim sitting beside her with a look of cautious anticipation.
+
+The line clicked, and a soft, slightly wary voice answered. "Hello?"
+
+"Hi, is this Masooma Zehra?" Mahrosh asked, her voice steady despite the knot in her stomach.
+
+"Yes, who's this?" Masooma's tone was polite but guarded.
+
+"I'm Mahrosh Javaid, a student at NCA," she began. "I came across your name in an article... about the painting."
+
+There was a pause on the other end, followed by a sharp intake of breath. "The painting?" Masooma repeated, her voice now tinged with tension.
+
+"Yes," Mahrosh confirmed. "I think... I think I'm going through what you went through. The suffocation, the bond... everything."
+
+Another pause. "Where are you right now?" Masooma finally asked, her voice quieter.
+
+"At the university," Mahrosh replied. "Please, we need your help. Can you tell us how you managed?"
+
+Masooma sighed, her voice softening. "I'll try. What do you want to know?"
+
+"Do you have a mark?" Saim interjected, leaning closer to the phone. "On your wrist, like a bruise or... anything unusual?"
+
+"No," Masooma replied immediately. "Neither I nor my sister ever had any physical marks. It was just... the suffocation. And the bond."
+
+"How did you survive it?" Mahrosh asked, her voice cracking slightly.
+
+"It's not hard for us," Masooma admitted. "We're sisters. We've always lived together, so staying within two meters isn't a problem. It's just how our lives are now."
+
+Mahrosh exchanged a glance with Saim, her chest tightening. "So you never tried to break it?"
+
+Masooma hesitated. "We did... once. But the consequences were worse than the curse itself. You don't want to go down that road."
+
+"What do you mean?" Saim asked urgently.
+
+Masooma's voice dropped, the weight of her words palpable even over the phone. "There's no way to break the curse, not without paying a price... one that's too high. Death... that's the only escape."
+
+The line went silent for a moment before Masooma continued, her tone shifting slightly. "But if you're looking for a way to make it easier, to store energy faster... Usama can help. He's a demonologist. He helped me and my sister. He can teach you how to manage the curse, but breaking it? That's not something he'll promise."
+
+"Where can we find him?" Mahrosh asked, gripping the phone tightly.
+
+"I'll send you his contact," Masooma replied. "Just be prepared. He'll help you survive, but you won't like everything he has to say."
+
+Before Mahrosh could ask more, the line went dead. She lowered the phone slowly, her knuckles white as she gripped it.
+
+"What did she mean, 'you won't like what he has to say'?" Mahrosh murmured, more to herself than to Saim.
+
+"What the hell this Usama is going to say?..." Marosh whispered to herself, expression of anger on her face.
+
+Saim leaned back, his jaw tight. "I don't know, but if this is the only way forward, we don't have a choice."
+
+The words hung between them, heavy and foreboding, as if the curse itself was listening.
+
+# The Meeting for Help
+
+The tension between Mahrosh and Saim didn't ease as they stared at the number Masooma had sent. After a long silence, Mahrosh sighed and dialed. Saim leaned in, his expression unreadable as the call connected.
+
+"Hello?" a deep, calm voice answered.
+
+"Is this Usama?" Mahrosh asked hesitantly.
+
+"Yes," the voice replied, carrying an air of authority. "Who's calling?"
+
+"My name is Mahrosh Javaid. I... Masooma Zehra suggested we contact you. She said you might be able to help us with... a curse."
+
+There was a pause on the other end, long enough that Mahrosh glanced nervously at Saim. Then Usama spoke again, his tone careful but direct. "Tell me where you are and what's happening to you."
+
+Mahrosh recounted their experience... the suffocation, the bond, and the cursed painting. Usama listened in silence, his breathing steady but deliberate.
+
+"I know this curse," Usama finally said, his voice dropping an octave. "The energy I'm sensing... it's from the Old Lady."
+
+"The Old Lady?" Saim repeated, frowning.
+
+"It's what we call her... the entity tied to that painting," Usama explained. "Her energy is distinctive and dangerous. If you're caught in her web, you won't escape unscathed."
+
+"What can we do?" Mahrosh asked quickly, desperation creeping into her voice.
+
+"I can meet you," Usama replied. "We'll talk in person. Pak Tea House tomorrow afternoon. Two o'clock."
+
+---
+
+The bustling atmosphere of Pak Tea House was in stark contrast to the unease in Mahrosh and Saim's hearts. They sat at a corner table, glancing around anxiously until a ordinary, composed young man approached them.
+
+"Mahrosh? Saim?" he asked, his piercing eyes locking onto theirs.
+
+They nodded, and he slid into the seat across from them. "I'm Usama," he said simply.
+
+From the moment they shook hands, Usama's expression shifted, his gaze sharpening. "I can feel it," he murmured, his tone almost reverent. "The energy is unmistakable. The Old Lady's presence is clinging to you both."
+
+Mahrosh swallowed hard. "Can you help us?"
+
+Usama leaned back, studying them. "I can help you manage it... to store the energy, to make it easier to live with. But breaking this curse..." He trailed off, his lips pressing into a thin line.
+
+"Breaking it isn't possible?" Saim asked, leaning forward.
+
+Usama hesitated, glancing briefly at Mahrosh before focusing on Saim. "There's one way. A bond of this nature can sometimes be overpowered by another bond... one that is equally unbreakable."
+
+Usama nodded, pulling out a small notebook and scribbling something down. "There's a way to store energy more efficiently, but it requires trust. Are you both willing to do whatever it takes?"
+
+Mahrosh nodded without hesitation. "Yes."
+
+Saim hesitated, his eyes narrowing. "What exactly does it involve?"
+
+Usama looked between them, his expression serious. "Saim, your blood. The bond ties the two of you together, but sharing your life force will allow Mahrosh to sustain herself for longer periods without needing your proximity."
+
+Mahrosh blinked in surprise but nodded. "If it'll help, I'll do it."
+
+Saim stared at Usama, his fists clenched. "You want me to... inject my blood into her?"
+
+"Yes," Usama said matter-of-factly. "A small amount. It's symbolic as much as it is practical. Her body will respond to the bond by absorbing the energy more directly."
+
+Saim shook his head, his discomfort evident. "This is insane."
+
+"You said you wanted to save her," Usama said sharply. "This is the safest way to make that happen. And 1mm will last her for whole week. Although it is better than holding hands."
+
+Mahrosh placed a hand on Saim's arm, her voice steady but soft. "Saim, I'll be okay. If this works, it'll buy us time to figure out the rest."
+
+Saim sighed, rubbing his temples before nodding reluctantly. "Alright. Let's do it."
+
+After detailing the procedure, Usama turned to Saim. "Walk with me for a moment," he said.
+
+Saim glanced at Mahrosh, who gave him a questioning look. "I'll be right back," he assured her before following Usama to a quieter corner of the tea house.
+
+When they were out of earshot, Usama faced him, his expression unreadable. "The blood injection will work for now. It'll give her some breathing room, but you need to understand... it's a temporary solution."
+
+Saim's brows furrowed. "You've said that. What's your point?"
+
+Usama's voice dropped, his tone firm. "A bond like this, forged through the Old Lady's curse, isn't just physical. It's emotional, spiritual, all-encompassing. That's why it feeds on proximity. To override it completely, you'd need a bond that's equally unbreakable."
+
+"What are you saying?" Saim asked warily, though he already sensed the answer.
+
+"Marriage," Usama said simply. "A marriage between the two of you would create a bond strong enough to neutralize the curse's effects. It would make the tether natural, rather than forced."
+
+Saim froze, his jaw tightening. "That's not an option," he said flatly.
+
+"I'm not saying you should act on it," Usama replied, his tone measured. "But if you want to ensure her survival and regain some semblance of normalcy, it's the only permanent solution I can see."
+
+Saim clenched his fists, his mind racing. For a brief, fleeting moment, the thought lingered—what if it worked? Could he do it?
+
+"No," he said firmly, shaking his head. "There has to be another way."
+
+Usama sighed but nodded. "Then focus on what we discussed. The blood injection will buy you time. But remember, time isn't on your side."
+
+Saim didn't respond, his jaw tight as he turned back toward Mahrosh. Usama watched him go, his expression thoughtful, before following silently.
+
+# Chapter 10: **The First Injection**  
+
+They ride back from the Pak Tea House in silence. Mahrosh kept staring at Saim, who was gripping the handles of the bike tighter than usual. The suggestion of injecting blood lingered heavily between them, but neither had the energy to discuss further.  
+
+When they reached NCA, Mahrosh hesitated at the enter, unsure if she should step inside. Saim gave her a reassuring nod. "Everthing will be fine," he said softly. "we have to do this. Let's get this over with before it's too late. You have to go back home on time."  
+
+The two made their way to the park, where Saim started unpacking his bag. Inside were syringes, sterile gloves, and small glass vials which he bought on their way back to NCA. Everything looked unsettlingly professional, yet the sight of it sent a chill down Mahrosh's spine.  
+
+"Sit down," Saim instructed. "Saim, roll up your sleeve."  
+
+Saim hesitated for a moment, his jaw tightening. "Are you sure about this?" He gave Mahrosh a look. "It's not going to harm you, and it will stabilize you for a week. as Usama said. But remember, this is just a temporary solution. We have to do this every week."  
+
+Mahrosh watched Saim reluctantly roll up his sleeve, exposing his arm. And tied a rubber band around it, finding a vein with practiced ease. The syringe glinted under the dim light, and Mahrosh's breath hitched.  
+
+"Are you okay?" Saim asked, glancing at her.  
+
+She nodded, though her hands trembled slightly. "I'm fine. Just... let's get it over with."  
+
+The needle pierced Saim's skin, and blood filled the syringe, slightly more than 1mm. Saim winced but said nothing, keeping his eyes on Mahrosh. Once the blood was extracted, Saim turned to her.  
+
+"Your turn," He said.  
+
+Mahrosh froze for a moment, her heart racing. She had agreed to this, but now, as Saim approached with the syringe, panic bubbled up inside her.  
+
+"You can do this," Saim said, his voice steady. "We've come this far."  
+
+Taking a deep breath, Mahrosh extended her arm. Saim swabbed the area, then injected the blood into her vein. The sharp sting lasted only a moment, but the weight of what they had done settled over the room like a thick fog.  
+
+"It's done," Saim said. Both looked at each other and smiled.  
+
+Mahrosh sat back, her head spinning slightly. "I feel... normal," she said, her voice uncertain.  
+
+"You will," Saim replied. "The blood will mimic the bond, allowing your body to absorb the energy it craves. But remember... not to push your limits."  
+
+--- 
+
+Saim sat across from Mahrosh in the on the ground in park, her expression unreadable. A silence stretched between them, thick with unspoken words.  
+
+"Do you think this will actually work?" Mahrosh finally asked, breaking the quiet.  
+
+"I don't know," Saim admitted. "But at least we have a week to figure out our next move."  
+
+Mahrosh nodded, though her unease remained. "What did Usama talk to you about earlier? When he pulled you aside?"  
+
+Saim hesitated, his jaw clenching. "Nothing important," he said quickly. "Just more warnings about the curse."  
+
+Mahrosh narrowed her eyes, sensing he wasn't telling her everything, but decided not to press him. Instead, she leaned back, exhaustion overtaking her.  
+
+"You should go home... or Ali will think of something stupid." Saim said after a while.  
+
+Mahrosh glanced at him, unsure. "What if something happens while I'm there?"  
+
+Saim exhaled sharply. "You'll be fine for a week now. Just... try to rest. We'll meet tomorrow and plan our next steps."  
+
+Reluctantly, Mahrosh stood, grabbing her bag. "Thanks, Saim," she said softly. "For everything."  
+
+As she left, Saim went straight back to his apartment. Right away he enters the room and sank into the couch, rubbing his temples. Usama's words echoed in his mind: 'Marriage would make this easier'  
+
+For a fleeting moment, he considered it again. But the image of Aisha's trusting face flashed before him, and he pushed the thought away.  
+
+---
+
+Later that night, Aisha returned home. She immediately noticed the tension in Saim's posture as he sat on the couch, staring at nothing.
+
+"Hey," she said, setting her bag down. "Rough day?"
+
+Saim forced a smile, but it didn't reach his eyes. "You could say that."
+
+Aisha frowned, sitting beside him. "Is everything okay with Mahrosh? Did you find a solution?"
+
+"We found something," Saim replied vaguely. "Usama suggested a temporary fix. It'll help for now."
+
+At the mention of Usama's name, Aisha froze, her brow furrowing. "Wait. Usama? As in Usama Hassan?"
+
+Saim blinked, confused. "Yeah... how do you know him?"
+
+Aisha leaned back, a small, wry smile crossing her face. "We used to be classmates back in university. We took Astrology and Mythology together as an extra subject. He was always the one with the craziest theories... half of which turned out to be true. I remember he gave a whole presentation about cursed objects that scared the entire class."
+
+Saim raised an eyebrow. "That sounds like him. He's a demonologist now."
+
+Aisha nodded, her expression growing more serious. "I'm not surprised. He always had a fascination with the paranormal. But be careful with him, Saim. Usama means well, but he's not afraid to walk dangerous paths to find answers."
+
+Saim sighed, rubbing the back of his neck. "He suggested injecting my blood into Mahrosh to help stabilize her."
+
+Aisha's eyes widened slightly, though her calm demeanor didn't falter. "And you agreed?"
+
+"I didn't have a choice," Saim admitted. "It's the only thing that'll buy us time while we figure out the rest."
+
+Aisha studied him for a moment, her expression unreadable. Then she reached out, taking his hand. "You're doing the right thing, Saim. Helping her. Just... don't lose yourself in this, okay?"
+
+Her words struck a chord, and Saim nodded silently.  
+
+---
+
+The next day, Mahrosh woke feeling better than she had in weeks. The injection seemed to have worked, giving her a newfound energy. But as she arrived on campus, a strange sensation crept over her.  
+
+The suffocation was gone, but something else lingered... a faint, gnawing emptiness, something different, like she was having mixed up thoughts. She seeing things just like Saim.  
+
+Saim noticed it too when they met later that afternoon. "You seem... off," he said, watching her closely.  
+
+"I feel off," Mahrosh admitted. "It's like... I am becoming you. It seems like I am having two personalities inside of me."  
+
+Saim frowned, his unease growing. "We need to keep a closer eye on this. If it changes again..."  
+
+"Let's hope it doesn't," Mahrosh said, though her voice betrayed her doubt.  
+
+The curse wasn't done with them yet, and they both knew it.  
+
