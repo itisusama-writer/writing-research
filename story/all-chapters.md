@@ -831,4 +831,3 @@ Finally, Mahrosh broke the silence. "Saim... what if we can't stop it?"
 "We will," Saim said firmly, though his voice wavered slightly. "We have to."  
 
 But deep down, they both knew the truth: the curse was evolving, and their time was running out.  
-
