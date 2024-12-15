@@ -638,7 +638,7 @@ Usama sighed but nodded. "Then focus on what we discussed. The blood injection w
 
 Saim didn't respond, his jaw tight as he turned back toward Mahrosh. Usama watched him go, his expression thoughtful, before following silently.
 
-# Chapter 10: **The First Injection**  
+# The First Injection 
 
 They ride back from the Pak Tea House in silence. Mahrosh kept staring at Saim, who was gripping the handles of the bike tighter than usual. The suggestion of injecting blood lingered heavily between them, but neither had the energy to discuss further.  
 
@@ -746,7 +746,7 @@ Saim frowned, his unease growing. "We need to keep a closer eye on this. If it c
 
 The curse wasn't done with them yet, and they both knew it.  
 
-# Chapter 11: Unraveling Minds  
+# Unraveling Minds  
 
 Mahrosh stood in front of her bathroom mirror, staring at her reflection. It seems like as if it belonged to someone else. Her hands gripped the sink, knuckles white as she struggled to steady her breathing. The injection had worked... there was no suffocation, no tightness in her chest... but something about her felt wrong, so wrong, as though parts of her mind were no longer her own.  
 
@@ -832,7 +832,7 @@ Finally, Mahrosh broke the silence. "Saim... what if we can't stop it?"
 
 But deep down, they both knew the truth: the curse was evolving, and their time was running out.
 
-# Chapter 12: **A Descent Into Doubt**
+# A Descent Into Doubt
 
 The ride back to campus was tense, neither Mahrosh nor Saim saying a word. Saim told Mahrosh about the marriage suggestion and the weight of Usama's suggestion about marriage loomed over them like a shadow, growing darker with each passing moment. The idea wasn't just unsettling; it was impossible. Yet, the seed of doubt had been planted, and neither could completely ignore it.
 
@@ -930,7 +930,7 @@ As they left the rooftop, Mahrosh glanced at Saim, her voice trembling. "What if
 
 But as they descended the stairs, a chilling thought lingered in both their minds: time was running out, and the Lady of Shadows was waiting.  
 
-# Chapter 13: **The Forgotten Archive**
+# The Forgotten Archive
 
 The following morning, Mahrosh woke to a strange sense of clarity. Despite the lingering tension of Usama's ominous words, her mind felt unusually sharp, as if urging her to act before the curse could tighten its grip. She wasted no time, right on her bed she texted Saim to meet her at the university library.
 
@@ -1003,3 +1003,313 @@ That night, Mahrosh couldn't sleep. Her dreams were vivid and fragmented, filled
 When she awoke in a cold sweat, her phone buzzed with a message from Saim, "I can feel her too. We're running out of time."
 
 Mahrosh stared at the screen, dread settling in her chest like a stone. Whatever the Lady of Shadows wanted, she was getting closer... and their time to uncover the truth was slipping away.  
+
+# Echoes in the Silence  
+
+Mahrosh sat cross-legged on her bed, the morning light streaming through her curtains casting long, uneven shadows across the room. Her laptop hummed quietly on the bedside table, its screen dark after hours of inactivity. She had spent the night poring over every detail of Ahmed Shahbaz's diary and the auction records, her eyes burning from lack of sleep. The silence in the house felt oppressive, broken only by the occasional distant sounds of her family downstairs. Yet, within her room, it felt as though she wasn't truly alone. The blood injection is still working, keeping her breathing steady, but a gnawing unease had taken its place.
+
+Beads of sweat began to form on her forehead, the air around her growing inexplicably warmer. She wiped her face with the back of her hand but stopped when she noticed her palm trembling. Her shirt clung to her back, damp with perspiration, and a faint dizziness crept in.
+
+"What's happening now?" she murmured to herself, her voice shaky.
+
+Standing abruptly, she stumbled to the bathroom, stripping off her clothes as the humid air pressed against her skin.  Before she could close the bathroom door, a sharp knock echoed from her bedroom door, followed by her sister Rabia's voice.
+
+"Mahrosh? Are you okay?" Rabia called, the concern in her tone unmistakable.
+
+Mahrosh froze, clutching her towel to her chest, her heart racing. "I'm fine!" she shouted back, trying to steady her voice.
+
+The door creaked open slightly, and Rabia's head peeked through. Her eyes darted to the disheveled state of the room, then back to Mahrosh, narrowing. "You don't look fine," she said, stepping inside.
+
+"I said I'm fine," Mahrosh repeated, sharper this time, avoiding her sister's probing gaze.
+
+Rabia crossed her arms, her brows knitting together. "What's going on, Mahrosh? You're pale, sweating... Did something happen?"
+
+Mahrosh shook her head quickly, retreating into the bathroom and shutting the door firmly behind her. "Just give me a minute, Rabia!"
+
+The silence that followed was thick, but Rabia didn't leave. "I'm waiting outside," she said, her voice quieter now, but firm. She continues her shower. 
+
+For a moment, the sensation grounded her, the rhythmic pattering of water on tiles drowning out the frantic hum of her thoughts.
+
+As the water flowed, she closed her eyes, hoping to wash away not just the sweat but the mounting fear as well. However, behind her closed lids, images began to form—flashes of the Old Lady's face, her dark, penetrating eyes locking onto her. Mahrosh gasped, her eyes snapping open as she stumbled backward against the cold tiles.
+
+She turned off the water hastily and wrapped herself in a towel, her chest heaving. This wasn't normal. It wasn't just stress or exhaustion anymore—it was the curse tightening its grip, infiltrating her mind.
+
+Wrapping herself in a towel, Mahrosh hesitated at the bathroom door. She could hear Rabia shifting in the room, her footsteps soft but insistent as they paced the floor. Taking a deep breath, she opened the door.
+
+Rabia turned immediately, her arms still crossed and her expression stern. "Are you going to tell me what's going on now?"
+
+Mahrosh avoided her gaze, walking past her to the dresser. "I told you, I'm fine. It's just... I didn't sleep well last night, that's all."
+
+"Don't lie to me," Rabia snapped, stepping closer. "You've been acting weird for days now. Amma and Abba might not notice, but I do."
+
+Mahrosh's hands froze mid-motion as she reached for her clothes. She could feel Rabia's piercing gaze on her back. Rabia's sharp intake of breath made Mahrosh pause. 
+
+"What is that?" Rabia asked, her voice trembling with a mix of shock and confusion.  
+
+"What's what?" Mahrosh replied, turning her head slightly, trying to see what her sister was talking about.  
+
+Rabia stepped closer, her hand hovering just inches from Mahrosh's shoulder blade. "There's... there's a mark on your back. It looks like a..." She stopped, struggling to find the words.  
+
+Mahrosh spun around, her brows furrowed. "A mark? What are you talking about?"  
+
+Without waiting for permission, Rabia grabbed a small handheld mirror from the dresser and held it up behind Mahrosh. "Here, look for yourself."  
+
+Mahrosh took the mirror with shaking hands, angling it over her shoulder to see her reflection. Her breath caught in her throat. There, etched into her skin just below her left shoulder blade, was a faint, swirling mark. It looked almost like an intricate, ancient symbol... a blend of curves and sharp edges that seemed both beautiful and ominous.  
+
+She ran her fingers over it, the skin smooth to the touch, but the sight of it sent a shiver down her spine. "I didn't... I didn't know this was there," she whispered, her voice barely audible.  
+
+"What is it?" Rabia asked, her tone urgent. "Is it a tattoo? A scar? How long have you had it?"  
+
+"I don't know," Mahrosh said, panic creeping into her voice. "I've never seen it before. I... I don't even know how it got there."  
+
+Rabia stepped back, her eyes narrowing. "Mahrosh, this isn't normal. You've been acting strange, and now this? You need to tell me what's really going on."  
+
+Mahrosh turned away, clutching the towel tighter around herself. Her mind raced, the mark an undeniable reminder of the curse's growing hold on her. But how could she explain it to Rabia without sounding insane?  
+
+"I can't," she said finally, her voice breaking. "You wouldn't understand."  
+
+"Try me," Rabia insisted, her voice softening slightly. "You're my sister, Mahrosh. Whatever this is, I want to help you."  
+
+For a moment, Mahrosh considered telling her everything—the curse, the painting, the suffocation. But the words caught in her throat, and all she could manage was, "I'm fine, Rabia. Just... please, leave me alone for now."  
+
+Rabia hesitated, her concern evident, but she nodded reluctantly. "Fine," she said quietly. "But this isn't over. You need to figure out what's happening to you, Mahrosh, before it's too late."  
+
+As Rabia left the room, Mahrosh sank onto the edge of her bed, the mirror still in her hand. She stared at the mark, dread pooling in her stomach. Whatever this was, it was just another piece of the puzzle—a puzzle that seemed to grow darker and more twisted with every step.  
+
+# Unseen Shadows  
+
+The classroom felt suffocating, the air heavy with a stillness that pressed on Mahrosh's chest. She sat at her desk near the window, the sunlight streaming in doing little to chase away the damp chill that had taken root in her. Her scarf clung to her skin, slick with sweat, and her trembling hands fidgeted with the edge of her notebook.  
+
+Every creak of the door sent her pulse racing until finally, Saim walked in. His sharp eyes scanned the room before landing on her, his expression darkening the moment he saw her pale face.  
+
+"Mahrosh, what's wrong?" he asked, striding across the room to sit beside her. His voice was firm but carried an edge of worry.  
+
+She hesitated, glancing at the other students around them. "I... I'm not okay," she admitted, her voice barely above a whisper. She leaned in, her eyes darting nervously. "Something new. There's a mark, Saim. On my back."  
+
+Saim's jaw tightened as he leaned closer, their shoulders brushing. "What kind of mark?"  
+
+Mahrosh swallowed hard, her fingers gripping the edge of her desk. "Rabia saw it this morning. She said it's intricate... like a symbol. I didn't even know it was there."  
+
+His brows furrowed, and he leaned forward, lowering his voice further. "Did you take a picture of it? Can I see it?"  
+
+Her cheeks flushed at the thought, and she shook her head. "No, I... I couldn't. It feels... too personal."  
+
+Saim sighed, running a hand through his hair. "Mahrosh, this isn't about personal boundaries anymore. If the mark is part of the curse, we need to figure out what it means. You trust me, don't you?"  
+
+His words stung, not because she didn't trust him, but because she trusted him too much. She nodded reluctantly, her heart hammering in her chest. "I do, but I can't show you. There has to be another way."  
+
+He exhaled deeply, his gaze softening as he placed a steadying hand on the desk between them. "Alright. What if you draw it? Sketch out what Rabia described. We can work with that."  
+
+Relieved, Mahrosh nodded. She reached into her bag, pulling out a blank notebook and a pen. Her hands trembled slightly as she started sketching, the memory of Rabia's worried tone echoing in her ears.  
+
+The lines came hesitantly at first, her mind grappling with the image Rabia had described. Slowly, the swirling curves and sharp edges began to take shape. The pattern wasn't perfect. She hadn't seen it herself, but it carried an eerie elegance, a beauty that unsettled her as much as it intrigued her.  
+
+When she finished, she slid the notebook across the desk to Saim without meeting his gaze. "This is the best I can do," she murmured.  
+
+Saim picked up the notebook, his eyes scanning the symbol with a growing intensity. "This looks familiar," he muttered, flipping through his own notebook. He stopped on a page filled with hastily drawn symbols Usama had shown them during one of their meetings.  
+
+Mahrosh leaned closer, her breath catching as she saw the resemblance. "It's similar, isn't it?"  
+
+"It's a binding mark," Saim said, his voice grim. "Usama mentioned these before. They're used in curses to anchor a connection... like a signature of the entity involved."  
+
+Her stomach churned, dread pooling low in her chest. "So, the Old Lady is... marking me as hers?"  
+
+Saim's silence spoke louder than any words could. His lips pressed into a thin line as he finally met her gaze. "We need to show this to Usama. Immediately."  
+
+Mahrosh nodded, but unease gnawed at her. The mark wasn't just a symbol, it was a claim, a brand of possession that the curse was tightening its grip.  
+
+She clenched her fists, her voice barely steady. "What if... what if this means it's too late? What if she's already winning?"  
+
+Saim placed a hand on her shoulder, grounding her with his steady presence. "She hasn't won yet," he said firmly. "And as long as we're fighting, she never will."  
+
+But even as he spoke the words, they both felt the creeping shadow of doubt. Time was slipping through their fingers, and the Old Lady's grip was stronger than ever.  
+
+# The Heat Within
+
+Saim and Mahrosh sat under the shadow of a towering banyan tree at the far end of campus, their shared tension tangible. The injection kit sat between them, its sterile contents a grim reminder of the lengths they had to go to survive another day.  
+
+"We'll do this again," Saim said, his tone flat as he swabbed his arm with alcohol. "Just to be safe."  
+
+Mahrosh nodded, her gaze fixed on the horizon. "I can’t risk another incident," she murmured.  
+
+Saim extracted a small amount of blood into the syringe, his movements practiced but hesitant. He handed the filled syringe to Mahrosh, who rolled up her sleeve without protest. The sting was brief, but the weight of what they were doing lingered as she leaned back against the tree.  
+
+"That should hold us for another week," Saim said, capping the syringe. His voice carried little relief. "We’ll call Usama tomorrow and figure out our next steps."  
+
+Mahrosh exhaled deeply, her exhaustion evident. "Let’s hope there’s still a next step to take."  
+
+---
+
+The ride home was a blur for Mahrosh, her body drained and her mind heavy with unanswered questions. By the time she stepped inside, the familiar warmth of her house felt oppressive. The air seemed thicker, the walls closer.  
+
+She climbed the stairs slowly, each step an effort. Once in her room, she shut the door firmly and leaned against it, sliding to the floor. Her breathing was steady, but her skin felt like it was on fire.  
+
+The heat was unbearable. She stripped off her clothes, leaving only her undergarments, and lay flat on her bed. Her hair clung to her forehead, damp with sweat, and her sheets grew wet beneath her.  
+
+"What’s happening to me?" she whispered, staring at the ceiling as beads of sweat rolled down her temples.  
+
+Her back ached, the pain dull at first but growing sharper, like claws raking down her spine. She clenched her fists, her nails digging into her palms as the pain spread, searing and relentless.  
+
+She turned onto her stomach, her breath coming in ragged gasps. Her trembling hand reached back instinctively, fingers brushing against her bare skin.  
+
+The mark.  
+
+It pulsed beneath her touch, a faint heat emanating from it as though it were alive. Her fingers trembled as she traced its edges, the intricate curves and sharp points sending a shiver down her spine.  
+
+And then she felt it—a pull.  
+
+Not physical, but something deeper, something primal. It was as if the mark were a doorway, and something on the other side was trying to claw its way through.  
+
+"No," she gasped, gripping the edge of the mattress as the pain intensified. Her vision blurred, the room spinning as she bit down on her lip to keep from screaming.  
+
+The air around her seemed to ripple, and for a brief moment, she swore she saw a shadow move across her ceiling.  
+
+The Old Lady.  
+
+Her face, her dark, penetrating eyes, flashed in Mahrosh’s mind, clearer than ever before. It wasn’t just a memory—it felt real, as if the Old Lady were standing right behind her, whispering in a language Mahrosh couldn’t understand.  
+
+Her body convulsed, the mark burning like a brand, and she cried out, tears streaming down her face.  
+
+And then, as suddenly as it began, the pain stopped.  
+
+Mahrosh lay motionless, her body slick with sweat and trembling. She turned her head slowly, her gaze falling on the mirror across the room.  
+
+Her reflection stared back at her, but the eyes were wrong.  
+
+They weren’t hers.  
+
+They were dark, empty, and unrelenting—the eyes of the Old Lady.  
+
+Mahrosh screamed, pulling the sheets around her as she scrambled backward against the headboard. The reflection remained unchanged, its cold gaze piercing through her.  
+
+The door burst open, and Rabia rushed in, her face pale with worry. "Mahrosh! What’s going on?"  
+
+Mahrosh pointed a shaking hand at the mirror. "The mirror... it’s her! She’s in there!"  
+
+Rabia turned to the mirror, her expression confused. "Mahrosh, there’s nothing there. It’s just you."  
+
+Mahrosh’s breath hitched as she looked again. The eyes were hers once more, bloodshot and wide with terror.  
+
+Rabia stepped closer, sitting on the edge of the bed. "You’re scaring me. What’s happening to you?"  
+
+Mahrosh buried her face in her hands, her voice trembling. "She’s... she’s inside me. I can feel her."  
+
+Rabia hesitated before stepping closer, her brows furrowed as she looked down at Mahrosh. "You’re burning up," she murmured, placing a hand on Mahrosh’s shoulder. The sweat didn’t seem to cling to her hand the way it drenched Mahrosh’s skin.
+
+"Why aren’t you...?" Mahrosh whispered, her voice breaking.
+
+Rabia frowned. "What?"
+
+Mahrosh shook her head, pulling away slightly. "Why aren’t you sweating? It’s so hot in here... isn’t it?"
+
+Rabia blinked, confused. "Mahrosh, it’s not hot. The room feels normal."
+
+A cold wave of realization swept over Mahrosh, cutting through the oppressive heat she felt. It wasn’t the room. It was her.
+
+The Old Lady wasn’t just near. She was inside.
+
+# The Bad News
+
+The sun hung low in the sky, casting long shadows across the campus as Saim made his way to the agreed meeting spot near the Fine Arts Building. His steps were heavy, his thoughts a swirling mess. Mahrosh had taken the day off, claiming she needed rest, but her voice over the phone had been shaky, her words strained.  
+
+Usama stood near the stone bench under an old neem tree, a slim notebook in his hand. His face was calm, but his eyes betrayed a storm of thoughts. When he saw Saim approaching, he gave a curt nod.  
+
+"You came alone," Usama remarked, his tone neutral.  
+
+"Mahrosh's not feeling well," Saim replied, sitting across from him. "She’s burning up, drenched in sweat. She stayed home."  
+
+Usama leaned back slightly, his gaze narrowing. "It’s not just the curse anymore," he said grimly. "I need to tell you what’s happening... and you’re not going to like it."  
+
+Saim stiffened. "What do you mean? Is it getting worse?"  
+
+Usama sighed, closing the notebook in his hand. "The signs are clear. The Old Lady’s presence is no longer external. She’s found her way inside Mahrosh."  
+
+Saim’s stomach twisted. "Inside? You’re saying she’s... possessed?"  
+
+"It’s not full possession yet," Usama clarified, though his voice carried no comfort. "But she’s taken root. The heat, the visions, the mark—they’re all signs. The Old Lady is weaving herself into Mahrosh’s very being. And once the merging is complete..."  
+
+Saim clenched his fists, his voice low and urgent. "What happens then?"  
+
+Usama’s gaze locked onto his, unwavering. "Then Mahrosh is gone. The Old Lady will take over completely, using her as a host. Her soul will be consumed, leaving nothing behind."  
+
+The words hit Saim like a blow, his breath catching in his throat. He leaned forward, his voice desperate. "There has to be a way to stop it. Another injection? Some ritual? Anything!"  
+
+Usama shook his head slowly. "The injections were a temporary fix, a way to delay the inevitable. But this curse... it was designed to end in one of two ways. Either the host fully succumbs, or..." He trailed off, hesitating.  
+
+"Or what?" Saim demanded, his tone sharp.  
+
+Usama leaned in, his voice low and heavy. "Or the bond is severed entirely. And that’s not something the curse allows easily. Severing it means one of you has to..." He hesitated again, the weight of the word hanging unspoken.  
+
+"Die," Saim finished for him, his voice hollow.  
+
+Usama nodded, his expression grim. "It’s not a solution anyone wants, but it’s the reality of this curse. The Old Lady thrives on bonds. If the bond is gone, she loses her hold. But Mahrosh’s body is already marked. She’s the primary target. If we don’t act fast..."  
+
+Saim leaned back, running a hand through his hair. His mind raced with the implications, with the weight of Usama’s words.  
+
+"How long do we have?" he asked finally.  
+
+"Days," Usama replied. "A week at most before she’s gone entirely. And the closer you two stay, the faster it progresses. She’s feeding off your connection."  
+
+Saim’s chest tightened as he tried to process the impossible choices before him. "So, what do we do now?"  
+
+Usama stood, his expression steely. "I’ll look into anything that might delay her progress further, but I won’t give you false hope, Saim. This isn’t something that ends well. Prepare yourself for the worst."  
+
+Saim nodded slowly, his throat dry. As Usama walked away, his words lingered like a shadow over Saim’s thoughts.  
+
+When he finally stood to leave, the weight of the curse felt heavier than ever. Time was running out, and Mahrosh was slipping through his fingers.
+
+# The Final Hours
+
+Mahrosh sat curled on the floor of her room, the dim light of her bedside lamp casting flickering shadows on the walls. The heat that had plagued her all day had grown unbearable, her skin burning as though flames licked at her from the inside. She clutched a damp towel to her face, but it did nothing to ease the fever or the growing weight in her chest.  
+
+Her phone buzzed on the bed beside her. With trembling hands, she grabbed it, Saim's name flashing on the screen.  
+
+"Mahrosh," his voice came through, tense and urgent. "How are you feeling?"  
+
+She opened her mouth to speak, but all that came out was a shaky breath. The words stuck in her throat, her mind too clouded to form sentences.  
+
+"I’m coming over," Saim said quickly, his tone leaving no room for argument.  
+
+"No," she whispered hoarsely. "It’ll make it worse. Usama said—"  
+
+"To hell with what Usama said!" Saim snapped, his frustration breaking through. "You’re not going through this alone. I’ll be there in fifteen minutes."  
+
+The line went dead, leaving Mahrosh staring at the screen, her heart racing. She tried to stand but collapsed back onto her knees, the room spinning around her. Her vision blurred, and for a moment, she thought she saw the Old Lady’s eyes staring back at her from the dark corners of the room.  
+
+"Get out of my head," she hissed, clutching at her temples.  
+
+The air grew heavy, the shadows in the room deepening. The faint sound of whispers filled her ears, unintelligible but insistent. She tried to block them out, pressing her hands against her ears, but they only grew louder.  
+
+When the knock came at her door, it was sharp and urgent. She dragged herself to her feet, her legs wobbling as she stumbled toward it.  
+
+"Mahrosh?" Saim’s voice called from the other side.  
+
+She opened the door, her vision swimming. Saim stood there, his face pale but determined. He stepped inside without waiting for an invitation, his eyes immediately scanning her appearance.  
+
+"You look worse," he said bluntly, closing the door behind him.  
+
+"Thanks," she muttered, her voice rasping.  
+
+Saim grabbed a chair and pulled it close to her. "Listen to me. Usama said this is it. We don’t have days, Mahrosh. We have hours—maybe less."  
+
+Her legs gave out, and she sank onto the edge of the bed, staring at him. "What does that mean, Saim? What are we supposed to do?"  
+
+Saim hesitated, his jaw tightening. His hand hovered over hers but didn’t touch, as if afraid to make it worse. "There’s one thing we haven’t tried. Something Usama didn’t want to say out loud."  
+
+Mahrosh’s breath hitched, her voice trembling. "What is it?"  
+
+Saim hesitated, his eyes locking onto hers. The room seemed to close in around them, the weight of the curse palpable.  
+
+"It’s... me," he said finally, his voice barely audible. "I have to..."  
+
+The whispers grew louder, drowning out his words as the shadows in the room stretched, reaching for them.  
+
+"Saim," Mahrosh said, her voice breaking, "what are you saying? What are you going to do?"  
+
+But Saim didn’t answer. He stood, his expression unreadable, and turned toward the door.  
+
+Mahrosh reached for him, her hand trembling. "Saim, no. Don’t—"  
+
+The room plunged into darkness, the whispers turning into a deafening roar. For a brief moment, she thought she saw the Old Lady’s silhouette standing behind Saim, her hand outstretched.  
+
+And then...  
